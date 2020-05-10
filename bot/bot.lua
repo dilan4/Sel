@@ -146,7 +146,7 @@ An fun bot based on BDReborn
 》@kuncen
 》@Vysheng
 》@MrHalix
-》And Beyond Team Members
+》Self Edited v3.1 @DevDilan
 
 》Our channel :
 》@BeyondTeam《
